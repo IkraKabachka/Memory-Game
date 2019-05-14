@@ -10,4 +10,4 @@
 
 
 
-######[ссылка](http://vk.com/ikrakabachka)
+######[VKontkte](http://vk.com/ikrakabachka)
